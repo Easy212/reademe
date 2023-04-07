@@ -3,7 +3,8 @@
 ---
 
 ***
-![사진1](https://user-images.githubusercontent.com/85111065/230516822-4475bd9a-77aa-40ff-847d-6a8145ba490a.PNG)
+![사진1](https://user-images.githubusercontent.com/104435584/230517472-62b1e413-92cf-49e3-9a71-f756701628ec.png)
+
 
 ___
 
